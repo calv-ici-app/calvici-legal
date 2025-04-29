@@ -45,7 +45,7 @@ Nous nous réservons le droit de modifier ces CGU à tout moment. Les utilisateu
 ## 8. Contact
 
 Pour toute question ou réclamation, contactez-nous à l’adresse suivante :  
-📧 **support@calvici.app**
+📧 **calv-ici@outlook.fr**
 
 ---
 
